@@ -460,6 +460,9 @@ Cybersecurity Internship – Networkwalks
 
 Batch083 
 
+Linkdin: https://www.linkedin.com/in/arati-javiya-b311a0331
+
+
 ---
 
 ## ⭐ Conclusion
